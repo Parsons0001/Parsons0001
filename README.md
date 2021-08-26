@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning ... computer science and engineering.
 - 💞️ I’m looking to collaborate on ... all things technology and science related.
 - 📫 How to reach me ... 
-# PCC CANVAS or DISCORD! 
+#     PCC CANVAS or DISCORD! 
 
 
