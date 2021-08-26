@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Parsons0001
-- 👀 I’m interested in ... coding
-- 🌱 I’m currently learning ... computer science
-- 💞️ I’m looking to collaborate on ... all things code
+- 👀 I’m interested in ... coding computers and integrated systems.
+- 🌱 I’m currently learning ... computer science and engineering.
+- 💞️ I’m looking to collaborate on ... all things technology and science related.
 - 📫 How to reach me ... 
-# CANVAS or DISCORD 
+# PCC CANVAS or DISCORD! 
 
 
